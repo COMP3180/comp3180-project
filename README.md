@@ -18,13 +18,13 @@ You need to have accepted this assignment repo and made a post here identifying 
 
 ## Week 6 - Presentations
 
-## Week 7 - Finalising your Research Report
+## Week 7 - Reviewing feedback
+
+## Week 8 - Finalising your Research Plan
 
 ## Mid-semster break 1
 
 ## Mid-semster break 2
-
-## Week 8 - Developing your Project
 
 ## Week 9 - Developing your Project
 
